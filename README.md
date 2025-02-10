@@ -1,1 +1,1 @@
-![diwali sales  image](https://github.com/user-attachments/assets/95bcbbf3-4270-45dd-9862-1431fed64395)
+![global store image](https://github.com/user-attachments/assets/266e6453-8c73-4e09-b2b2-57ce1e46ea27)
